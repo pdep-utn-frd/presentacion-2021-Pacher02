@@ -15,4 +15,6 @@ El de la foto soy yo en el Lago Argentino, en verano del 2019.
     * Estrategia, como *Age of Empires*.
     * Si tenes alguna recomendación, ¡te leo!
 * Escucho música mientras juego, como Cacho Castaña, Sabaton y Pavarotti.
-* Miro videos en YouTube de *Forged in Fire*, *Dream* y *Sabaton History*.
+* Cuando estoy aburrido, miro: 
+    * Videos en YouTube de *Forged in Fire*, *Dream* y *Sabaton History*.
+    * Documentales de historia en Netflix, como *Eventos de la Segunda Guerra Mundial a todo color* y *El Ascenso de un Imperio: Otomano*.
