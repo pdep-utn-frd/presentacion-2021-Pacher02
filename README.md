@@ -13,6 +13,7 @@ El de la foto soy yo en el Lago Argentino, en verano del 2019.
     * Gestión, como *Autonauts*.
     * Trama, como *Red Dead Redemption 2* o *Kingdom Come: Deliverance* .
     * Estrategia, como *Age of Empires*.
+![](https://scontent.faep24-1.fna.fbcdn.net/v/t1.0-9/cp0/163845839_4021308541260369_4828947803796953339_n.jpg?_nc_cat=107&ccb=1-3&_nc_sid=730e14&_nc_ohc=jWTg1v_4WZYAX9MGPyA&_nc_ht=scontent.faep24-1.fna&tp=29&oh=f16a25ddb30c16bd998efa6d4a3830f0&oe=6080ABF1)
     * Si tenes alguna recomendación, ¡te leo!
 * Escucho música mientras juego, como Cacho Castaña, Sabaton y Pavarotti.
 * Cuando estoy aburrido, miro: 
