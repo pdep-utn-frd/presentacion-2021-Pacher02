@@ -8,6 +8,8 @@ El de la foto soy yo en el Lago Argentino, en verano del 2019.
 * Nací y vivo actualmente en Zarate.
 * Me gusta la historia medieval, y por eso estoy haciendo una cota de malla.
 * Tengo un perro llamado Rocky.
+
+![Rocky.png](https://scontent.faep24-1.fna.fbcdn.net/v/t1.0-9/165204815_4025746677483222_6499823414652232831_n.jpg?_nc_cat=111&ccb=1-3&_nc_sid=730e14&_nc_ohc=kTe-Y6hgKaAAX_x58SH&_nc_ht=scontent.faep24-1.fna&oh=6f81d258f636f54255cf7f85888286e4&oe=6080BB45)
 ### Hobbies
 * Me gustan los juegos de: 
     * Gestión, como *Autonauts*.
